@@ -25,3 +25,6 @@ Quite often, your parents are simply afraid. Maybe they see your “failures” 
 Maybe it’s even quite literal, like they don’t want their church to see how “bad” you are as a kid or else their snooty friends will think they raised a bad Christian. They might be afraid that your behaviour will somehow reflect on them negatively, and they try to control you to avoid that judgment on them, especially if they’re very judgmental and they’ve received a lot of judgment in their life.
 
 If they come from a very harshly judgmental community or family background themselves (e.g. conservative and religious), their reputation will be a big deal to them and you’ll be directly responsible (in their eyes) for that reputation.
+
+# And when they don’t change, you must walk away.
+
